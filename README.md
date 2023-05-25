@@ -1,3 +1,2 @@
 # ICT
-sadsafasf
 nekoukej
